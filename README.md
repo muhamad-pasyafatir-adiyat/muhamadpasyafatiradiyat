@@ -1,2 +1,0 @@
-# muhamadpasyafatiradiyat
-About Me
